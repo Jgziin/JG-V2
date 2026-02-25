@@ -1,3 +1,3 @@
 # JG V2
-V2
+**JG TEAM**
 
